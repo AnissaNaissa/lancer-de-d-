@@ -1,1 +1,1 @@
-# lancer-de-d-
+# lancer-de-dé
